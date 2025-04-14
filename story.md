@@ -1,1 +1,2 @@
-Once upon a time, there was a fished named Nemo. He and his dad, Marlin, were clown fish.
+Once upon a time, there was a fished named Nemo. Nemo and his Dad Marlin, were getting ready for Nemo's 
+first day of school.
